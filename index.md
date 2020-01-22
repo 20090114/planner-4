@@ -10,7 +10,7 @@
 |**Class: Tuesday**           |**Assignment**                                              |
 | Geometry: Mr. Inman         | 6-2 notes due tomorrow                                     |
 | Concert Band: Mr. Bharttari | none                                                       |
-| English 9: Mrs. Bloomer     | "Penelope and Odysseus" study guide questions due tomorow  |
+| English 9: Mrs. Bloomer     | None                                                       |
 | Civics/Econ: Mr. Carlson    | incentive worksheet due tomorrow                           |
 | Biology: Mrs. Fries         | None                                                       |
 |                             |                                                            |
